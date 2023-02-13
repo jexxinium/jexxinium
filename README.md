@@ -6,4 +6,4 @@
 ⠄⠸⣿⠟⠋⠄⠄⠄⠄⠄⠈⠁⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄
 
 
-COPYRIGHT © 2003 JEXXINIUN - ALL RIGHTS RESERVED
+COPYRIGHT © 2003 JEXXINIUM - ALL RIGHTS RESERVED
